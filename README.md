@@ -1,0 +1,1 @@
+# ba-ar-oran-hesaplama
